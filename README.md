@@ -130,7 +130,6 @@ If you’re a startup or SME ready to **take control of cybersecurity and risk**
 - 💼 LinkedIn: [linkedin.com/in/cdtoepfer](https://linkedin.com/in/cdtoepfer)  
 - 🎤 Chartwell Speakers: [chartwellspeakers.com/speaker/carolin-desiree-toepfer](https://www.chartwellspeakers.com/speaker/carolin-desiree-toepfer)  
 - 🤝 Intro Expert Marketplace: [intro.co/CarolinDesir%C3%A9eToepfer](https://intro.co/CarolinDesir%C3%A9eToepfer)
-```
 
 ### Keywords for Discovery
 
